@@ -1,2 +1,1 @@
-# 3bdulra7manAmir.github.io
-Yup This is Me, This is MY Portfolio...
+
